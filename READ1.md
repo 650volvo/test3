@@ -1,1 +1,1 @@
-I love hotdogs
+I love Lexus LC 500
